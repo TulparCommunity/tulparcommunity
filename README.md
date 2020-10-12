@@ -6,4 +6,4 @@ Tulpar, bu topluluğu daha da ilginç hale getirebilecek yaratıcı üyelerle do
 Başkalarıyla eğlenerek Bilim Teknoloji Mühendislik Sanat Yazılım başlıkları altındaki tüm kategorileri destekliyoruz.
 Tulpar'ı birçok kişi tarafından daha bilgilendirici hale getirebilecek bir web sitemiz, YouTube kanalımız ve sosyal medyamız var.
 
-Eğer ilgileniyorsanız tereddüt etmeyin, çünkü kapımız yeni üyelerin gelişi için çok açık.
+Eğer ilgileniyorsanız tereddüt etmeyin, çünkü kapımız yeni üyelerin gelişi için açık.
